@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+
+I am a young and purposeful individual willing to improve and also invest my skills, creativity, and enthusiasm to support and inspire others to freely express their talents lovingly and harmoniously.
+
 <!--
 **Mostalpha7/Mostalpha7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
